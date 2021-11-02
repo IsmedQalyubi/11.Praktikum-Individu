@@ -18,7 +18,7 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20limas%20segitiga.PNG) 
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%205.PNG) 
 6. TABUNG
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/tabung.jpg) 
 ![image](
 7. KERUCUT
 ![image](
