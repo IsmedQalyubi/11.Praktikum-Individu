@@ -27,4 +27,4 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%207.PNG) 
 8. BOLA
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Screenshot%20(169).png) 
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%208.PNG) 
