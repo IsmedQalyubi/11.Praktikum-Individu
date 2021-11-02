@@ -24,7 +24,7 @@
 7. KERUCUT
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/kerucut.jpg) 
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20kerucut.PNG) 
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%207.PNG) 
 8. BOLA
 ![image](
 ![image](
