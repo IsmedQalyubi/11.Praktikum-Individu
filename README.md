@@ -19,6 +19,7 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%205.PNG) 
 6. TABUNG
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/tabung.jpg) 
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20Tabung.PNG) 
 ![image](
 7. KERUCUT
 ![image](
