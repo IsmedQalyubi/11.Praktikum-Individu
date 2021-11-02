@@ -10,7 +10,7 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20limas%20segiempat.PNG) 
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%203.PNG) 
 4. PRISMA SEGITIGA
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/prisma%20segitiga.jpg) 
 ![image](
 ![image](
 
