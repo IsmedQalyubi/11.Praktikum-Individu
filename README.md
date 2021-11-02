@@ -7,5 +7,5 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%202.PNG) 
 3. LIMAS SEGI EMPAT
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/limas%20segi%20empat.jpg) 
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20limas%20segiempat.PNG) 
 ![image](
