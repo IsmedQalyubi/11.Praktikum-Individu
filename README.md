@@ -12,5 +12,18 @@
 4. PRISMA SEGITIGA
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/prisma%20segitiga.jpg) 
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20prisma%20segitiga.PNG) 
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%204.PNG) 
+5. LIMAS SEGITIGA
 ![image](
-
+![image](
+![image](
+6. TABUNG
+![image](
+![image](
+7. KERUCUT
+![image](
+![image](
+![image](
+8. BOLA
+![image](
+![image](
