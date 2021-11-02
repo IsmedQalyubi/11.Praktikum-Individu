@@ -16,7 +16,7 @@
 5. LIMAS SEGITIGA
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/limas%20segitiga.jpg) 
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20limas%20segitiga.PNG) 
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%205.PNG) 
 6. TABUNG
 ![image](
 ![image](
