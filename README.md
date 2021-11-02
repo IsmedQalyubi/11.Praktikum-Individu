@@ -11,6 +11,6 @@
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%203.PNG) 
 4. PRISMA SEGITIGA
 ![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/prisma%20segitiga.jpg) 
-![image](
+![image](https://github.com/IsmedQalyubi/11.Praktikum-Individu/blob/main/Capture%20prisma%20segitiga.PNG) 
 ![image](
 
